@@ -36,6 +36,12 @@ My expertise spans both front-end and back-end development, ensuring seamless in
 - **Bachelor of Computer Science – Computer Applications**  
   Jamhuriya University of Science & Technology
 
+
+  Islamic Studies – Machad Al Asaala
+2019–2024
+
+TRAINING
+
 ---
 
 ## 📌 Projects
